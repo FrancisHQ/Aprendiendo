@@ -1,1 +1,1 @@
-# Aprendiendo
+# Migthy Ducks Hockey League
